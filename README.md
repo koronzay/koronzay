@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @koronzay
+- 📫 discord : @coolhighzz
